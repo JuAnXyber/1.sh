@@ -1,0 +1,6 @@
+# 1.sh
+Bypass KR
+DONT SELL ITS FILE !!!
+
+
+I MAKE IT FREE FOR EVERYONE  !!!
